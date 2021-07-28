@@ -1,1 +1,0 @@
-# walmax-challenge
